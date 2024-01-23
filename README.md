@@ -1,4 +1,3 @@
-![Schwertberger-PowerOfvision-1200](https://github.com/Vimurua/IDEA-120-responses-Vimurua/assets/156378408/5b18e269-1390-4b5a-95be-2ed9d559021a)
 ## IDEA-120-responses-Vimurua
 ### Week-02-Murray-Poem.md
 
