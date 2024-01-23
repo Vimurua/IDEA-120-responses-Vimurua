@@ -10,4 +10,4 @@ I turn
 I cry   
 I accept
  
-[![Free Will](https://www.google.com/url?sa=i&url=https%3A%2F%2Fkalampedia.org%2F2022%2F01%2F20%2Fsam-harris-on-free-will%2F&psig=AOvVaw0BxRKv-PLo_Y-52YeoakJ1&ust=1706074255837000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCPDsrInk8oMDFQAAAAAdAAAAABAD!)
+[![Free Will](https://www.google.com/url?sa=i&url=https%3A%2F%2Fkalampedia.org%2F2022%2F01%2F20%2Fsam-harris-on-free-will%2F&psig=AOvVaw0BxRKv-PLo_Y-52YeoakJ1&ust=1706074255837000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCPDsrInk8oMDFQAAAAAdAAAAABAD![image](https://github.com/Vimurua/IDEA-120-responses-Vimurua/assets/156378408/4e53f6d5-9074-44ed-8907-d4f7bd4b2432)
