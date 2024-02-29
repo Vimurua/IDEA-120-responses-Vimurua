@@ -4,3 +4,5 @@ One of the first things I thought of when reading about the Festspielhaus, was t
 One way design was used was with the buildings; upper stories are somewhat shorter than would be normal for a building so they seem to be taller than they are. Disney would use illusions with change in color that occurs when light travels through air, including the atmosphere, in order to make objects appear farther away or larger than they actually are. Kim Irvine, art director at Walt Disney Imagineering, explained on the Disney Parks Blog that her team "warmed the pink hues on the lower towers and gradually added blue to lighten the colors toward the top," in an effort to make the iconic Disneyland castle appear as grand as possible.
 
 Disney, like Wagner immerses the audience through the design of the environment. Creating a feeling of immersion in a world of fantasy. Whether it be the design of a stage or design of a castle, people are invited to let go and soak in the fantasy of the Gesamtkunstwerk.
+
+![image](https://github.com/Vimurua/IDEA-120-responses-Vimurua/assets/156378408/d186006d-1050-4dc3-8d19-5b293fa7295f)
