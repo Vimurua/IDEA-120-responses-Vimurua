@@ -1,1 +1,2 @@
-
+I think the systems of algorithims will always be flawed. Whether it be by the creators of the algorithims and their own unconsious bias, or the sheer amount of unkown factors that will impossible to factor in. Being subject to just a number on a seemingly endless data model goes against the entire idea of being human. Humans are meant to be unique individuals. Not numbers on screens. With this, I believe the internet would be more useful for people without algorithims. 
+Digital space is an interesting concept to me, with or without algorithms. The internet is built upon tehe experience of others, and will no way be absent from bias. 
