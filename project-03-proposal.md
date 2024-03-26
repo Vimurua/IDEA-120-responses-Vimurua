@@ -1,1 +1,1 @@
-
+For my Project 3 Non-Linear story game, I was thinking of combining horror and romance. The story is centered around you, with two other characters who each have a "Good" ending and "Bad" ending, as well as a neutral ending for both. The horror elements of the story will come through side characters and the general plot of the story. I would like to include a love triangle troupe if I can. Depending on who you choose at the begnining, it influences the triangle. 
